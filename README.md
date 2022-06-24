@@ -1,3 +1,3 @@
-### selam 👋
+### seka ltd.
 
-kod yazar lol oynarım. arada sırada tasarım yaparım.
+seka's software company.
