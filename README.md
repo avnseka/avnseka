@@ -1,3 +1,4 @@
-### seka ltd.
+### orhan,
 
-seka's software company.
+software,
+design.
